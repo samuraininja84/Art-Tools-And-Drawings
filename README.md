@@ -1,2 +1,2 @@
 # Drawings
-The Home Of Any Drawings that I plan on saving for now
+The Home Of Any Drawings That I Plan On Saving For Now
